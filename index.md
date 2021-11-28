@@ -1,7 +1,6 @@
 # [<-](https://pkgu.github.io)
 
-
----------
+------------
 
 ### 11.28
 
@@ -9,7 +8,7 @@ I can't say why I usually like to go to library, the crowded, sweaty library, in
 
 I hate homework, I hate bugs, and I love salmon. The essence of the whole world is my cat having a fresh, sweet, greasy piece of salmon. I can't imagine what a gorgeous picture that will be. 
 
-" I choose to send my cat to the moon, I choose to send my cat to mars or further in this century and do the other things, not because they are easy, but because they are hard. Because that goal will serve to organize and measure the best of my energy and skills, because that challenge is one that I'm willing to accept, one I'm  unwilling to postpone, and one I intend to win, and the others, too. "
+I choose to send my cat to the moon, I choose to send my cat to mars or further in this century and do the other things, not because they are easy, but because they are hard. Because that goal will serve to organize and measure the best of my energy and skills, because that challenge is one that I'm willing to accept, one I'm  unwilling to postpone, and one I intend to win, and the others, too. 
 
 ### 11.18
 
