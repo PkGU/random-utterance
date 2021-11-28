@@ -3,6 +3,11 @@
 
 ---------
 
+### 11.28
+
+I cant say why I usually like to go to library, the crowded, sweaty library, in which the stochastic viberation of human behaviors lead to the murmur of the physical world. Maybe that's the perverted eccentricity of being gazed by others or... so called L'Autre? I dont know... 
+
+
 ### 11.18
 
 图书馆西侧座位选择系统
